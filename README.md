@@ -1,0 +1,1 @@
+# placa-video-GT-610
